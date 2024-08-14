@@ -1,1 +1,1 @@
-![README.md image of the organization profile](https://github.com/user-attachments/assets/dc6336ae-c776-491b-a81f-bed59edc26ce)
+![README.md image of the organization profile](https://github.com/user-attachments/assets/c744d337-78ad-4548-92b1-b7d682f665ef)
